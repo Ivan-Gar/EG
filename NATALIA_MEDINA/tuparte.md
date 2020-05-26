@@ -1,4 +1,4 @@
-Mucho mejor ahora, buen trabajo.
+Mucho mejor ahora, buen trabajo. Aunque hayas pasado olímpicamente de las medidas >:(
 
 ~~Fallos encontrados.~~
 ~~1. El marco no está bien construido, hay una forma rara de intersección entre piezas extrañas.~~ 
