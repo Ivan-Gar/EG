@@ -5,7 +5,7 @@
 https://alumnosurjces-my.sharepoint.com/:u:/g/personal/d_denchuk_2019_alumnos_urjc_es/EYiUxn0gt8lImT9X_aeS3wABXABJzrimNvJ5LoFF8c_OuQ?e=QxQbKj
 
 La distribución del trabajo se encuentra en el PDF llamado Trabajo EG. Ahí puedes ver lo que te ha tocado hacer. Este archivo se intentará 
-mantener actualizado en medida de mis posibilidades. ~~En cualquier caso podéis contactarme por Whatsapp.~~ No atiendo Whatsapp, solo llamadas o e-mail.
+mantener actualizado en medida de mis posibilidades. ~~En cualquier caso podéis contactarme por Whatsapp.~~ No atiendo Whatsapp, solo llamadas o e-mail. **d.denchuk.2019@alumnos.urjc.es**
 
 Sube tus archivos para el trabajo de nuestro grupo de Expresión Gráfica
 
